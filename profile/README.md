@@ -18,4 +18,3 @@ Sadly, a lot of information on the project is scattered in random Google Docs or
 
 - The title is completely random and doesn't hide any meaning whatsoever.
 - We have no ties with any communist party or any political ideology for that matter. Any information that says otherwise is purely speculative.
-- TITIEEES! 😻
